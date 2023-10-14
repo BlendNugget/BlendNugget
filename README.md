@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlendNugget
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning nothing at the moment
+- 💞️ I’m looking to collaborate on lessons on coding and maybe projects that involve it
+- 📫 How to reach me: Discord is blendnugget
